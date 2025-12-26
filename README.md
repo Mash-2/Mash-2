@@ -83,8 +83,8 @@ I am particularly interested in organisations that value **data-driven decision-
 ---
 
 ## 🤝 Let’s Connect
-📫 **Email:** your.email@example.com  
-💼 **LinkedIn:** https://linkedin.com/in/yourprofile  
+📫 **Email:** mashdiva2@gmail.com  
+💼 **LinkedIn:** https://www.linkedin.com/in/mashkuratu/ 
 🌐 **Portfolio:** (Add when available)
 
 ---
